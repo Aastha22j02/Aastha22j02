@@ -20,8 +20,6 @@
 
 - 📫 How to reach me **aasthag284@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1CAq9q0APflgIboYOvhv-8cmA9Of2D-Oi/view?usp=drive_link](https://drive.google.com/file/d/1CAq9q0APflgIboYOvhv-8cmA9Of2D-Oi/view?usp=drive_link)
-
 - ⚡ Fun fact **Workout, Reading**
 
 <h3 align="left">Connect with me:</h3>
